@@ -1,1 +1,1 @@
-// GAY
+i hate women
